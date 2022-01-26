@@ -6,6 +6,8 @@ Verificada por Ainhoa
 
 Comunicada por Jose
 
+https://www.youtube.com/watch?v=Ntd2F7rEdDM
+
 Version 2
 
 Generada por Jose Mª Larrinzal Jimenez
@@ -54,7 +56,7 @@ Comunicada por Cristian Liebana
 
 Verificado por Jose Maria Larrinzal
 
-
+https://www.youtube.com/watch?v=9vdvBmx4BFA
 
 
 
