@@ -1,16 +1,16 @@
 Versión 1 
 
-Generada por Cristian
+Generada por Cristian Liebana Simeon
 
-Verificada por Ainhoa
+Verificada por Ainhoa Argüeso Torres
 
-Comunicada por Jose
+Comunicada por Jose Larrinzal Jimenez
 
 https://www.youtube.com/watch?v=Ntd2F7rEdDM
 
 Version 2
 
-Generada por Jose Mª Larrinzal Jimenez
+Generada por Jose Larrinzal Jimenez
 
 Comunicada por Ainhoa Argüeso Torres
 
@@ -24,7 +24,7 @@ Generada por Ainhoa Argüeso Torres
 
 Comunicada por Cristian Liebana Simeon
 
-Verificado por Jose Mª Larrinzal Jimenez
+Verificado por Jose Larrinzal Jimenez
 
 https://www.youtube.com/watch?v=s0I-CqSy-kg
 
@@ -34,7 +34,7 @@ Generada por Cristian Liebana Simeon
 
 Comunicada por Jose Maria Larrinzal
 
-Verificado por Ainhoa Argueso
+Verificado por Ainhoa Argueso Torres
 
 https://youtu.be/YV2Vt20NzJc
 
