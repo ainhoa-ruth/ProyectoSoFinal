@@ -1,48 +1,58 @@
 Versión 1 
 
-generada por Cristian\n 
-verificada por Ainhoa
+Generada por Cristian
 
+Verificada por Ainhoa
 
-comunicada por Jose
+Comunicada por Jose
 
 Version 2
 
-generada por Jose Mª Larrinzal Jimenez 
-comunicada por Ainhoa Argüeso Torres
-verificado por Cristian Liebana Simeon
+Generada por Jose Mª Larrinzal Jimenez
+
+Comunicada por Ainhoa Argüeso Torres
+
+Verificado por Cristian Liebana Simeon
 
 https://www.youtube.com/watch?v=kBMuSWP5azw
 
 Versión 3
 
-generada por Ainhoa Argüeso Torres
-comunicada por Cristian Liebana Simeon
-verificado por Jose Mª Larrinzal Jimenez
+Generada por Ainhoa Argüeso Torres
+
+Comunicada por Cristian Liebana Simeon
+
+Verificado por Jose Mª Larrinzal Jimenez
 
 https://www.youtube.com/watch?v=s0I-CqSy-kg
 
 Versión 4
 
-generada por Cristian Liebana Simeon
-comunicada por Jose Maria Larrinzal
-verificado por Ainhoa Argueso
+Generada por Cristian Liebana Simeon
+
+Comunicada por Jose Maria Larrinzal
+
+Verificado por Ainhoa Argueso
 
 https://youtu.be/YV2Vt20NzJc
 
 Versión 5
 
-generada por Jose Maria Larrinzal
-comunicada por Ainhoa Argüeso
-verificado por Cristian Liebana
+Generada por Jose Maria Larrinzal
+
+Comunicada por Ainhoa Argüeso
+
+Verificado por Cristian Liebana
 
 https://www.youtube.com/watch?v=H9XMB4ieEjg
 
 Versión final
 
-generada por Ainhoa Argueso
-comunicada por Cristian Liebana
-verificado por Jose Maria Larrinzal
+Generada por Ainhoa Argueso
+
+Comunicada por Cristian Liebana
+
+Verificado por Jose Maria Larrinzal
 
 
 
